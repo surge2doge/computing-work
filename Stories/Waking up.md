@@ -21,6 +21,8 @@ My heart skipped a beat.
 
 I turned back and took a closer look at the capsule which I had emerged from.
 
-"1207"
+Across the cracked glass, 4 numbers hastily scribbled on spoke,
+
+"1207".
 
 I am the monster. 

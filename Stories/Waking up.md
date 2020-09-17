@@ -4,7 +4,7 @@ I looked around. My senses took in my surroundings. Where was I? A underground l
 
 I got out of the capsule which I was in and spun around to take a better look at the place. Bottles spilled, fumes in the air. Vines hung from the cavern above, cobwebs decorating the dusty walls.
 
-Chairs were toppled over, and some buttons were still lit up. A tension hung in the air, despite no one physically appearing. 
+Chairs were toppled over, and some buttons were still lit up. A tension hung in the air, despite no figure appearing under my sight. 
 I continued pacing around, gazing at the scene before me, gingerly taking each step. 
 
 And then, my eyes fell upon a note.

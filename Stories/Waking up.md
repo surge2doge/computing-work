@@ -1,3 +1,5 @@
+Chapter 1: Silence
+
 I woke up with a start.
 I looked around, my senses taking in my surroundings. Where was I? A underground lab of some sort, it seemed. 
 I got out of the capsule which I was in and spun around to take a better look at the place. Bottles spilled, fumes in the air. Vines hung from the cavern above, cobwebs decorating the dusty walls.
@@ -24,3 +26,25 @@ Across the cracked glass, 4 numbers hastily scribbled on spoke,
 "1207".
 
 I am the monster. 
+
+Chapter 2: Daylight
+
+I creeped out of the cavern, the sunlight instantly hitting me as I stood at the entrance. What greeted me was rows and rows and rows of shrubbery, the sounds of wildlife flooding my ears. And in the distance, a volcano stood tall, with smoke pouring out from its blasted-off top. 
+
+I strategically crawled down the slope, my feet attempting to find the rough ledges to grip onto. That, however, was unsuccessful as I slid and tumbled onto the grass below. I yelped upon impact, curling into a ball. 
+
+But then, I realised something. 
+
+I didn't bleed. 
+
+I gazed up, observing the height which I had just slid down from. It wasn't short at all. Any normal being would've died from that fall. 
+
+Am I even human?
+
+I stared down at my feet, which were bare. They looked pretty normal. My eyes moved up to my hands. They looked fine too. What about my face?
+
+I listened for a stream, and the sound of flowing waters led me to a quiet little pond.
+
+I looked into the waters.
+
+Oh my god.

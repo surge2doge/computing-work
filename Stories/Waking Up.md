@@ -49,15 +49,15 @@ I looked into the waters.
 
 Oh my god.
 
-I could'nt find the words to describe how I even looked like. I looked like...A monster. Scars were drawn onto my face, with blood remnants adding a pop of colour.
+I couldn't find the words to describe how I even looked like. I looked like...A monster. Scars were drawn onto my face, with blood remnants adding a pop of colour.
 And a murderous quality.
 My face definitely wasn't "normal". There were bumps all over it, stitches hastily sewn on, and most evidently, my right cheek was gone.
 
-Hollowed out. Like someone or something had bitten into me.
+Hollowed out. The bones were visible. Like someone or something had bitten into me.
 
 And I was still alive. The blood didn't even flow out. There seemed to be an invisible barrier between my blood and the natural world. 
 
-My fingers searched for the gaping hole. It felt...like normal skin. What exactly am I?
+My fingers searched for the gaping hole, feeling for the bones. But it felt like...normal skin. What exactly am I?
 
 I think I've lost myself.
 

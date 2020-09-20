@@ -48,3 +48,7 @@ I listened for a stream, and the sound of flowing waters led me to a quiet littl
 I looked into the waters.
 
 Oh my god.
+
+What was wrong with me?
+
+Why did I look like that?

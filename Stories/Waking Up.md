@@ -62,3 +62,7 @@ My fingers searched for the gaping hole. It felt...like normal skin. What exactl
 I think I've lost myself.
 
 But I kinda enjoy the new me, too.
+
+Chapter 3: Discovery
+
+I decide to spend the night in the forest under a great yew tree. 

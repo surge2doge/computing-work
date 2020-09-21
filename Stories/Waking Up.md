@@ -81,4 +81,4 @@ That trip costed me though, for the lava was catching up to me, and I was strugg
 
 And at that moment I thought, goodbye world, as the lava crept up to my feet.
 
-But the awaited pain was never felt.
+But the awaited pain never caught up.

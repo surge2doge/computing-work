@@ -65,4 +65,20 @@ But I kinda enjoy the new me, too.
 
 Chapter 3: Discovery
 
-I decide to spend the night in the forest under a great yew tree. 
+I decide to spend the night in the forest under a great yew tree. I slept pretty peacefully, until I woke to a quiet rumble coming from behind. My eyes opened and I turned back, instantly weary of my surroundings. The rumble escalated into a roar. I looked up.
+
+The volcano.
+
+I took a few steps back from the yew tree as lava started spurting out from the volcano's top. The rage was boiling.
+
+My walk broke into a run.
+
+The lava crashed down on the land beside me as I ducked and swerved through the jungle, my legs starting to give up on me. I may have superhuman qualities, but definitely not superhuman speed. 
+
+Then, a rock tripped me. Yes, a rock. Pathetic, I know, but things happen.
+
+That trip costed me though, for the lava was catching up to me, and I was struggling to get back up. My hands pushed the soil beneath, but I just couldn't lift myself. 
+
+And at that moment I thought, goodbye world, as the lava crept up to my feet.
+
+But the awaited pain was never felt.

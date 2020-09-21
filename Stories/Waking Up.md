@@ -7,15 +7,15 @@ I got out of the capsule which I was in and spun around to take a better look at
 Chairs were toppled over, and some buttons were still lit up. A tension hung in the air, despite no figure appearing under my sight. 
 I continued pacing around, gazing at the scene before me, gingerly taking each step. 
 
-And then, my eyes fell upon a note.
+Just then, my eyes fell upon a note.
 
-A small, crumpled up, yellow-tinged note.
+A small, crumpled up, yellowed note.
 
-I picked it up, slowly unraveling its secrets.
+I picked it up, slowly flattening it out, unravelling its secrets. 
 
-"Test subject 1207: Uncontrollable, shows signs of aggresion." 
+"Test subject 1207: Uncontrollable, signs of aggresion." 
 
-I read the words, unsure of what it meant.
+I reread the words, puzzled.
 But a sudden realization hit me.
 
 My heart skipped a beat.
@@ -31,13 +31,13 @@ Chapter 2: Daylight
 
 I creeped out of the cavern, the sunlight instantly hitting me as I stood at the entrance. What greeted me was rows and rows and rows of shrubbery, the sounds of wildlife flooding my ears. And in the distance, a volcano stood tall, with smoke pouring out from its blasted-off top. 
 
-I strategically crawled down the slope, my feet attempting to find the rough ledges to grip onto. That, however, was unsuccessful as I slid and tumbled onto the grass below. I yelped upon impact, curling into a ball. 
+I strategically crawled down the slope, my feet attempting to find the rough ridges to grip onto. That, however, was unsuccessful as I slid and tumbled onto the grass below. I yelped upon impact, curling into a ball. 
 
 But then, I realised something. 
 
-I didn't bleed. 
+I didn't bleed. It did not even hurt the least. 
 
-I gazed up, observing the height which I had just slid down from. It wasn't short at all. Any normal being would've died from that fall. 
+I gazed up, observing the height at which I had just slid down from. It wasn't short at all. Any normal being would not have survived that fall. 
 
 Am I even human?
 
@@ -61,7 +61,7 @@ My fingers searched for the gaping hole, feeling for the bones. But it felt like
 
 I think I've lost myself.
 
-But I kinda enjoy the new me, too.
+But I kinda enjoy the new me, too. I am different. I can finally stand out at the very least, that's certain. 
 
 Chapter 3: Discovery
 
